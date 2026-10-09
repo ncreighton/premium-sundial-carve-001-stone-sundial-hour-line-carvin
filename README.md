@@ -1,0 +1,2 @@
+# premium-sundial-carve-001-stone-sundial-hour-line-carvin
+Tired of losing track of precise hour line angles and numbering positions while carving your stone sundial? This Notion template eliminates guesswork and keeps your entire layout project organized from first chisel to final polish.  The Stone Sundial Hour Line Carving and Number Layout Log solves the chaos of managing multiple measurements, carving
